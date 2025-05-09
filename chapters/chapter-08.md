@@ -117,7 +117,7 @@ Freedom is built quietly.**
 
 ---
 
-## 🔥 Power Reflection:
+##  Power Reflection:
 
 **Ask yourself tonight:**
 
