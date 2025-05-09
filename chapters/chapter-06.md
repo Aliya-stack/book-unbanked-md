@@ -156,7 +156,7 @@ You are **building your own**.
 
 ---
 
-### 🧠 **Power Reflection:**
+###  **Power Reflection:**
 
 > **Every dollar you earn, ask:**  
 > *"Am I earning this to build my chains — or to buy my freedom?"*
