@@ -45,7 +45,7 @@ They **charge interest** on money they created **out of thin air**.
 
 To beat them, you must **build like them** — but **without their sin**.
 
-### 🔁 The Freedom Blueprint Looks Like This:
+###  The Freedom Blueprint Looks Like This:
 
 #### ➤ **Asset Over Debt**  
 Never borrow to consume.  
